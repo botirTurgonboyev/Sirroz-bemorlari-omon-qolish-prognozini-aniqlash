@@ -1,0 +1,1 @@
+# Sirroz-bemorlari-omon-qolish-prognozini-aniqlash
